@@ -1,2 +1,0 @@
-# jakeduplantis.github.io
-Portfolio
